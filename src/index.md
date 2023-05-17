@@ -6,3 +6,4 @@ lanzar un álbum antes de irse al
 servicio militar. Además, se reveló 
 que ha sido víctima de acoso por 
 parte de una acosadora.
+cambio de jimin
